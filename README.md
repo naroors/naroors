@@ -6,3 +6,4 @@
 - 😄 Pronouns: There is only *one* He.
 - ⚡ Fun fact: Did you know that you won't even read this?
 
+[![Discord Presence](https://lanyard.cnrad.dev/api/144455131381891072)](https://discord.com/users/144455131381891072)
